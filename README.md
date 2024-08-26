@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Michaelpedroso-j
 - 👀 I’m interested in ... restaurante 
-- 🌱 I’m currently learning ... prestativo
+- 🌱 I’m currently learning ... italy
+  
 - 💞️ I’m looking to collaborate on ...com empresa 
 - 📫 How to reach me ...00001145213455sp@ql..
 
